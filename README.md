@@ -1,1 +1,1 @@
-# SeeAI-Terms-of_use
+# SeeAI-terms-of-use
